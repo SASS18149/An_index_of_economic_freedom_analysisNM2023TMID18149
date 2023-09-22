@@ -1,0 +1,1 @@
+# An_index_of_economic_freedom_analysisNM2023TMID18149
